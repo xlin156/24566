@@ -23,4 +23,5 @@
 
 每日更新，紧跟潮流
 我们每天都会更新最新的日本AV视频，确保你可以看到最热的影片。无论是最新发布的作品，还是经典老片，我们的资源库总是与时俱进，持续为你提供新的观看内容。
-<span style="display:none;">[Canonical link](）</span>
+
+<span style="display:none;">[Canonical link](https://github.com/xlin156/24566 ）</span>
